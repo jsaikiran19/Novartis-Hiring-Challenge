@@ -1,1 +1,1 @@
-# Novartis-Hring-Challenge
+# Novartis-Hiring-Challenge
